@@ -1,1 +1,2 @@
-# Rare-Tags
+<img width="1470" height="956" alt="Screenshot 2026-02-16 at 2 39 02 PM" src="https://github.com/user-attachments/assets/9832490c-e99c-473c-b564-bd7b07ef0142" /><img width="1470" height="956" alt="image" src="https://github.com/user-attachments/assets/fb299071-a103-406a-a449-d3eeb948c4ed" />
+<img width="1470" height="956" alt="Screenshot 2026-02-16 at 2 39 27 PM" src="https://github.com/user-attachments/assets/78fa58d3-9175-41b7-bdc7-8da5ca57a7be" />
